@@ -1,6 +1,6 @@
 # Konnichiwa!
 
-### my name is Bob
+### Watashi no namae wa Jerome desu.
 This is normal text
 
 This is *italics* text
