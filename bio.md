@@ -4,4 +4,4 @@ I am a 3rd year college student currently working on my Bachelor's for Human Res
 
 One of my favorite hobbies is photography, and editing.
 
-Here is a sample work I did: ![Winter](Winter.jpg)
+Here is a sample work I did: ![Winter]( Winter.jpg )
