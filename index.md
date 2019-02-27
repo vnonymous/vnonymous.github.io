@@ -4,4 +4,4 @@
 
 This is my home page.
 
-Check out my [Bio.](https://vnonymous.github.io/bio)
+Please feel free to check out my [Bio Page](https://vnonymous.github.io/bio)
