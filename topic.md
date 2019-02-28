@@ -8,7 +8,7 @@
 
 *You know what they say, if it ain't XO, then it gotta go.*
 
-
 *Call out his name, and get yourself Acquainted.*
 
-*Trust me he'd Die For You, so the love wouldn't be tainted.*
+*Trust me he'd Die For You, so the love wouldn't be nowhere near tainted.*
+
