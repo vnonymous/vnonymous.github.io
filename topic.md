@@ -18,6 +18,8 @@
 
 ![XO](XOVO.gif)
 
-*To go to Biography page: [Bio.](https://vnonymous.github.io/bio)
+*To go to Biography page: [Bio.](https://vnonymous.github.io/bio)*
 
 ![XOTW](XOPaint.gif)
+
+*To go to Main Page: [Home.](https://vnonymous.github.io/index)*
