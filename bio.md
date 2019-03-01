@@ -4,6 +4,8 @@ Born on the summer of 1997, a year after the GOAT Kobe Bryant was drafted by the
 
 A 3rd year college student currently working on his Bachelor's for Human Resource Management.
 
+[UMUC](https://www.asia.umuc.edu)
+
 Has traveled to a variety of different places, due to being in a military family. Japan, by far, has been the most favorite place to be stationed at.
 
 Aside from participating in a variety of sports during his high school career, this year marked the first year he started coaching basketball for the local youth sports program.
@@ -14,6 +16,7 @@ Photography and editing are some of his other favorite side hobbies, besides spo
 
 Here is a sample work that was done while on a walk at the Kintai Park: ![Winter](Winter.jpg)
 
-*Credit to the models used in the picture: (for privacy purposes, unfortunately I cannot drop names)*
+*Credit to the models used in the picture: (for privacy purposes, model names will notbe displayed)*
 
-Any input is greatly appreciated, so here is a link to some of his own finished work: [*Sakura.*](https://vsco.co/jaeosama/images/1)
+Any input is greatly appreciated, so here is a link to some of his other finished work: [*Sakura.*](https://vsco.co/jaeosama/images/1)
+
