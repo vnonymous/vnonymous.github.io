@@ -16,7 +16,6 @@ Photography and editing are some of his other favorite side hobbies, besides spo
 
 Here is a sample work that was done while on a walk at the Kintai Park: ![Winter](Winter.jpg)
 
-*Credit to the models used in the picture: (for privacy purposes, model names will notbe displayed)*
+*Credit to the models used in the picture: (for privacy purposes, names will not be displayed)*
 
 Any input is greatly appreciated, so here is a link to some of his other finished work: [*Sakura.*](https://vsco.co/jaeosama/images/1)
-
