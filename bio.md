@@ -1,13 +1,19 @@
 # Jerome Asuncion
 
-Born on the summer of 1997, a year after the 
+Born on the summer of 1997, a year after the GOAT Kobe Bryant was drafted by the Charlotte Hornets, but was traded to the Los Angeles Lakers, where his legendary career would start.
 
-I am a 3rd year college student currently working on my Bachelor's for Human Resource Management.
+A 3rd year college student currently working on his Bachelor's for Human Resource Management.
 
-Japan is by far the best place my family and I have been stationed at. There are lots of places to go and see, and also take pictures of.
+Has traveled to a variety of different places, due to being in a military family. Japan, by far, has been the most favorite place to be stationed at.
 
-As you can probably assume from the previous statement, photography and editing are one of my favorite hobbies.
+Aside from participating in a variety of sports during his high school career, this year marked the first year he started coaching basketball for the local youth sports program.
 
-Here is a sample work I did while on a walk at the Kintai Park: ![Winter](Winter.jpg)
+May well be on the way to coaching other sports, if the schedule permits it.
+
+Photography and editing are some of his other favorite side hobbies, besides sports.
+
+Here is a sample work that was done while on a walk at the Kintai Park: ![Winter](Winter.jpg)
+
+*Credit to the models used in the picture: (for privacy purposes, unfortunately I cannot drop names)*
 
 Any input is greatly appreciated, so here is a link to some of his own finished work: [*Sakura.*](https://vsco.co/jaeosama/images/1)
