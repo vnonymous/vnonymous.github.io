@@ -1,4 +1,4 @@
-# Jerome Asuncion
+# JA.
 
 Born on the summer of 1997, a year after the GOAT Kobe Bryant was drafted by the Charlotte Hornets, but was traded to the Los Angeles Lakers, where his legendary career would start.
 
