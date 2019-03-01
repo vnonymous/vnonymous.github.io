@@ -20,4 +20,4 @@ Here is a sample work that was done while on a walk at the Kintai Park: ![Winter
 
 Any input is greatly appreciated, so here is a link to some of his other finished work: [*Sakura.*](https://vsco.co/jaeosama/images/1)
 
-*To go back to the 1st page: [Home.](https://vnonymous.github.io/index)
+*To go back to the 1st page: [Home.](https://vnonymous.github.io/index)*
