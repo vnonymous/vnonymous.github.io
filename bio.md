@@ -4,7 +4,7 @@ Born on the summer of 1997, a year after the GOAT Kobe Bryant was drafted by the
 
 A 3rd year college student currently working on his Bachelor's for Human Resource Management.
 
-[UMUC](https://www.asia.umuc.edu)
+Student's current school:[UMUC](https://www.asia.umuc.edu)
 
 Has traveled to a variety of different places, due to being in a military family. Japan, by far, has been the most favorite place to be stationed at.
 
